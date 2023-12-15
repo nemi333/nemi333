@@ -10,7 +10,7 @@
 
 ###
 
-<p align="left">🏆 Multispecial dishwasher<br>🎁 26.11<br>🎯 Goals: This is my secret<br>🧤 Hobby: MTB, Climbing, Shooting</p>
+<p align="left">🏆 Multifunctional dishwasher<br>🎁 26.11<br>🎯 Goals: This is my secret<br>🧤 Hobby: MTB, Climbing, Shooting</p>
 
 ###
 
